@@ -2,7 +2,7 @@
 
 Youtube: https://youtu.be/F1RuCEE4Coc
 
-Discord: https://discord.com/invite/vUcfz8juHv
+Discord: https://discord.gg/clownguard
 
 
 ClownGuard - Features
